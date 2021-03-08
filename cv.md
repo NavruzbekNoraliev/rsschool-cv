@@ -39,4 +39,5 @@ ___
 **University:** [Inha University in Tashkent](www.inha.uz) (2016-2020)
 ___
 ### English:
+**Proficient**
 **IELTS: 7**
